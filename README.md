@@ -1,1 +1,1 @@
-# The Story behind Animation and VFX
+# The Story Behind Animation and VFX
