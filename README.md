@@ -68,7 +68,7 @@ Remember, guys, this is my motivation for you. So if you feel the system is some
 
 Well, with next photo, I would like to tell you what is also important in our lives. 
 
-![Hands that symbolise the connection between people](Photos/P_8.png)
+![Hands that symbolise the connection between people](Photos/P_10.png)
 
 I mean, this is my point of view, and you can accept this or not; it's totally up to you. But what I've learned here on earth is that if you want to be truly happy, it's good to have honest friendships, good relationships with your family, and also when you are helping someone. These three things can help, in my opinion. Thanks to this, you can have the energy to always stand up and try to overcome failures. I mean, follow your journey. Also, you can feel really happy, and it will be easier for you to endure bad periods in your life. Because I've had bad periods in my life, and I hope you don't have... Well, probably you have bad periods in your life too, and I wish for you that you don't have so many. But I've learned that true friendships, honest relationships with your family, and helping others can help you overcome all obstacles in your life. And when you achieve your goals, you can feel truly happy and not lonely.
 
