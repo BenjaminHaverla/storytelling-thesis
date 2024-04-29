@@ -46,7 +46,7 @@ this is the easiest storyboard you can make. It's really cool! You know, guys, i
 
 See? Another example... It's just the right words. And the storyboard editor will understand this. I don't know if in the Czech Republic, it works like that or in Slovakia, but I am pretty sure that abroad. If I go more abroad... they have these positions, and the storyboard editor will understand what I want to tell. Well, another example: 
 
-![Storyboard with 2 windows](Photos/P_4.png)
+![Storyboard with 2 windows](Photos/P_5.png)
 
 As you can see, you can use, like, two windows as one shot. So the window, which is up, looks like a map. So I can totally understand where the camera will be, where the character will move, where the car is. And the second window is just showing the camera angle and also the car movement. So thanks to these two windows, you can also explain the scene and people will understand. So there are a lot of options and variations. See also not professional drawing, and some famous directors made this type of shots, and we can totally understand what's the main point about this shot. Also, with a rectangle, we can explain the perspective or the camera angle. Again, simple drawings. There's a rectangle that is helping us to understand the perspective, and cool, we understand. But of course, there's a situation when you need nice drawings. I'm not experienced, but I think if I want to sell some story to some producer and I need the money to make this project real, I will need nice drawings.
 
