@@ -2,7 +2,9 @@
 
 ![Intro photo of talk where we can see Benjamín Haverla in sketch style.](Photos/Storytelling_still.png)
 
-Often when I'm trying to introduce myself, it's quite interesting because I'm only able to show you **`THE COVER`** of my personality. Let me give you an example. One guy will say, 
+Often when I'm trying to introduce myself, it's quite interesting because I'm only able to show you **`THE COVER`** of my personality. Let me give you an example. One guy will say:
+
+-------------------------------------------------------
 
 > *THE GUY:*
 
