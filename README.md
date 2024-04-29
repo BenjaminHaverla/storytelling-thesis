@@ -41,6 +41,8 @@ After my high school, I tried to apply to a film directing university in our cap
 
 And we have only one university in Slovakia dedicated to filmmaking. I also know about a second university, but this university has a lot of bad reviews. So, you know, I tried at least to apply somewhere where I can study anything about filmmaking. And this is the reason why I'm here. I mean, I am a student at the University of Creative Communication, which specializes also in animation, and visual effects. 
 
+## The Hard Beginning
+
 The first class was also really difficult because we had professional lessons, and our teacher was also Slovak. He worked for Disney as a storyboarder and 2D animator. I don't remember exactly what he was doing, but if I remember well, he was working with the storyboards and 2D animation. And, you know, when he saw my drawing skills, my drawing skills were, like, you could see before. The teacher said to me:
 
 "Benjamin, you’re at the university and you don't have the basic skills of drawing. If you really want to do this, you need to work on yourself very hard because with these types of drawing skills, you have no chance to apply to a professional studio." 
