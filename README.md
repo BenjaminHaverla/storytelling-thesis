@@ -91,6 +91,8 @@ The next storyboard is not directly from the book, shot by shot. However, this i
 
 Remember, guys, this is my motivation for you. So if you feel the system is somehow trying to force you to do just one thing, always try to be open-minded and search for other sources. We have a lot of cultures here on this earth, and accepting criticism can really help you improve in some ways. But when you reach a point where you feel that criticism is hurting you and destroying your personality, try to put it away as soon as possible. Trust yourself! This is just my example of how I improved myself by being patient. Yes, I had to accept that I'm not as good as others, and I searched for some way, and after some time, I found it somehow. And I think that's how it works. If you're not scared to stand up and walk again and make a lot of failures... because you want your dream, right? Life is testing us to see if we really want what we want. So, yeah, search for other sources, accept criticism, but when you feel the criticism is destroying your personality, try to put it away as soon as possible.
 
+## The Values
+
 Well, with next photo, I would like to tell you what is also important in our lives. 
 
 ![Hands that symbolise the connection between people](Photos/P_10.png)
