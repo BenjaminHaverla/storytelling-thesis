@@ -4,7 +4,7 @@
 
 Often when I'm trying to introduce myself, it's quite interesting because I'm only able to show you the cover of my personality. Let me give you an example. One guy will say, "Hi, Benjamin! Nice to meet you. By the way, what are you studying?" And I will tell him animation and visual effects. And this guy will react like, "Wow, that’s really cool." Because sometimes I get these types of reactions. But when I have a short time to talk about my animation and visual effects field, I'm not able to give this person the story behind the animation and visual effects, and well... this is going to be our topic.
 
-![Silly drawing](Photos/Photo_2.png)
+![Silly drawing](Photos/P2.png)
 
 So my secret is that as an animator, I can't draw. You can see it also in this photo. These were my drawing skills when I was younger. So it's funny, and, well... now I'm going to be honest with you. I mean, you will know more about my personality because I have time here to discuss it. My dream is to become a film director. 
 
