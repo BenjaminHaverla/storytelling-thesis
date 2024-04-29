@@ -4,11 +4,13 @@
 
 Often when I'm trying to introduce myself, it's quite interesting because I'm only able to show you **`THE COVER`** of my personality. Let me give you an example. One guy will say, 
 
-> *THE GUY*  "Hi, Benjamin! Nice to meet you. By the way, what are you studying?" 
+> *THE GUY*
+
+Hi, Benjamin! Nice to meet you. By the way, what are you studying?
 
 > *ME*
 
-Animation and visual effects. And this guy will react like, 
+Animation and visual effects.
 
 > *THE GUY*
 
