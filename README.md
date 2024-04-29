@@ -84,3 +84,5 @@ I think I'm probably quoting Gandalf from The Lord of the Rings, by the way I li
 
 
 ## [See video](https://drive.google.com/file/d/1xb3BgfflX3RLkeS3FFgyVgtPNcVuSpsg/view?usp=share_link)
+
+![Sketched Benjamin – going into building](Photos/P_13.png)
