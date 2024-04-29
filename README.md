@@ -4,13 +4,13 @@
 
 Often when I'm trying to introduce myself, it's quite interesting because I'm only able to show you **`THE COVER`** of my personality. Let me give you an example. One guy will say, 
 
-> *THE GUY*
+> *THE GUY*<
 "Hi, Benjamin! Nice to meet you. By the way, what are you studying?" 
 
-> *"ME"*
+> *ME*
 Animation and visual effects. And this guy will react like, 
 
-> *"THE GUY"*
+> *THE GUY*
 "Wow, that’s really cool!" 
 
 Sometimes I get these types of reactions. But when I have a short time to talk about my animation and visual effects field, I'm not able to give this person the story behind the animation and visual effects, and well... this is going to be our topic.
