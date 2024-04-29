@@ -50,11 +50,17 @@ See? Another example... It's just the right words. And the storyboard editor wil
 
 As you can see, you can use, like, two windows as one shot. So the window, which is up, looks like a map. So I can totally understand where the camera will be, where the character will move, where the car is. And the second window is just showing the camera angle and also the car movement. So thanks to these two windows, you can also explain the scene and people will understand. So there are a lot of options and variations. 
 
-![Storyboard with texts](Photos/P_6.png)
+![Storyboard with simple drawing](Photos/P_6.png)
 
-See also not professional drawing, and some famous directors made this type of shots, and we can totally understand what's the main point about this shot. Also, with a rectangle, we can explain the perspective or the camera angle. Again, simple drawings. There's a rectangle that is helping us to understand the perspective, and cool, we understand. But of course, there's a situation when you need nice drawings. I'm not experienced, but I think if I want to sell some story to some producer and I need the money to make this project real, I will need nice drawings.
+See also not professional drawing, and some famous directors made this type of shots, and we can totally understand what's the main point about this shot. 
+
+![Storyboard with simple drawing + reactangle](Photos/P_7.png)
+
+Also, with a rectangle, we can explain the perspective or the camera angle. Again, simple drawings. There's a rectangle that is helping us to understand the perspective, and cool, we understand. But of course, there's a situation when you need nice drawings. I'm not experienced, but I think if I want to sell some story to some producer and I need the money to make this project real, I will need nice drawings.
 
 And I was wondering about myself... You know I'm not worried to ask for some help from an artist who can draw nicer than I. Thanks to this book, I learned to depict visuals better and how scenes should look. So, thanks to book, I can convey the story that is in my head. For example, I can ask for help from a storyboard artist or an artist who can realize and make nicer drawings of my concepts. Then probably the producer can like the visuals, how they look. So I learned that there are a lot of options in our life.
+
+![Storyboard shot created by Benjamín Haverla](Photos/P_8.png)
 
 The next storyboard is not directly from the book, shot by shot. However, this is how I draw nowadays. Of course, if you give me a pencil and paper, I can draw as you saw before. Luckily, I've found my style. So, if I have a digital pen, tablet, and some computer, thanks to references, I can make better drawings. Of course, if I'm going to compare myself with other artists, they can draw nicer than I can. But I think this is really enough, and it's an improvement in my personality regarding how I want to better explain to you what my vision is and how I would like to tell the story. And this, for me, is important.
 
