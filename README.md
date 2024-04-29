@@ -23,7 +23,7 @@ Animation and visual effects.
 Sometimes I get these types of reactions. But when I have a short time to talk about my animation and visual effects field, I'm not able to give this person the story behind the animation and visual effects, and well... this is going to be our topic.
 
 ![Silly drawing](Photos/PP_2.png)
-> *My silly drawing skills*
+> *My silly drawing skills* 
 
 So my secret is that as an animator, I can't draw. You can see it also in this photo. These were my drawing skills when I was younger. So it's funny, and, well... now I'm going to be honest with you. I mean, you will know more about my personality because I have time here to discuss it. My dream is to become a film director. 
 
@@ -47,7 +47,7 @@ The first class was also really difficult because we had professional lessons, a
 
 > *THE PROFESSIONAL:*
 
-"Benjamin, you’re at the university and you don't have the basic skills of drawing. If you really want to do this, you need to work on yourself very hard because with these types of drawing skills, you have no chance to apply to a professional studio." 
+**`"Benjamin, you’re at the university and you don't have the basic skills of drawing. If you really want to do this, you need to work on yourself very hard because with these types of drawing skills, you have no chance to apply to a professional studio."`** 
 
 And I think he's right. I mean, he didn't tell me these sentences exactly how I'm telling you, but the meaning was something like this because I can't remember every detail of the sentence, but that was the meaning. And he was right. I mean, and also thanks to this situation, I was asking myself if I am in the right place or, is it really true that with no drawing skills I won’t be a good filmmaker or these things..? or a good director? Because I met some teachers and they said to me that if I want to be a director, I should draw nicely because if I won't be able to draw nice things, then it will be really hard for me to be a film director. And these people are right. And this is the part where I want to motivate you to accept criticism, but when you feel this criticism is hurting your personality like a knife which is stuck in you and you're bleeding, you don't want to lose all blood because then you will die, right? So try to put this knife away as soon as possible. And I think this is helpful.
 
