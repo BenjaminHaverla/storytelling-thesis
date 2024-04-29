@@ -23,6 +23,7 @@ Animation and visual effects.
 Sometimes I get these types of reactions. But when I have a short time to talk about my animation and visual effects field, I'm not able to give this person the story behind the animation and visual effects, and well... this is going to be our topic.
 
 ![Silly drawing](Photos/PP_2.png)
+> *My silly drawing skills*
 
 So my secret is that as an animator, I can't draw. You can see it also in this photo. These were my drawing skills when I was younger. So it's funny, and, well... now I'm going to be honest with you. I mean, you will know more about my personality because I have time here to discuss it. My dream is to become a film director. 
 
