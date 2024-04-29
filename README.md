@@ -16,6 +16,8 @@ Animation and visual effects.
 
 "Wow, that’s really cool!" 
 
+----------------------------------------------------
+
 Sometimes I get these types of reactions. But when I have a short time to talk about my animation and visual effects field, I'm not able to give this person the story behind the animation and visual effects, and well... this is going to be our topic.
 
 ![Silly drawing](Photos/PP_2.png)
