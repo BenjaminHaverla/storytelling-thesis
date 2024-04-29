@@ -36,7 +36,7 @@ Well... You know, after some time, I learned something. And when I was in Berlin
 
 I learned a lot from this book, very motivational information, which I couldn't find at my university. And I'm not saying that it's a mistake of my university. It's just personal growth, it's my personal improvement. So this is also my advice. You can accept it, but of course, you don't have to. It's totally up to you. I just want to share my life story with you and motivate you because, you know, I have a lot of friends who are disappointed in themselves because they failed at something or, for some of my friends, what other people think is very important, which I think is not okay if you want to follow your dream. 
 
-Also, search for other sources because, thanks to this, if you are searching for other sources, not just from your own place, you can be open-minded. And this book, in Berlin, helped me to understand some things. And the motivational part is coming now because you know my drawing skills.. and: 
+Also, search for other sources because, thanks to this, if you are searching for other sources, not just from your own place, you can be open-minded. And this book, in Berlin, helped me to understand some things. And the motivational part is coming now because you know my drawing skills... and: 
 
 ![Storyboard with texts](Photos/P_3.png)
 
